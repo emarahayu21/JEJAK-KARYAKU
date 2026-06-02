@@ -1,1 +1,0 @@
-# JEJAK-KARYAKU
